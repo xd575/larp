@@ -1,4 +1,3 @@
-# fr
 How can I live forever?
 I don't know
 Where can I find the heaven?
